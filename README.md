@@ -1,1 +1,1 @@
-This is a Data Analysist Centered Resume
+This is a Data Analyst Centered Resume
